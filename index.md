@@ -1,1 +1,1 @@
-Este es mi primer proyecto
+Este es mi primer proyecto y estoy aprendiendo a utilizarlo.
