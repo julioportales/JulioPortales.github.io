@@ -6,9 +6,7 @@ El Futuro Depende Del Esfuerzo Del presente.
 
 
 
-![Computadora](![Foto del Liceo](http://graph.facebook.com/UEE.Francisco.Matute/picture?type=large "titulo")
-
-
+![Foto del Liceo](http://www.desontis.com/wp-content/uploads/2014/02/Fondos-animados-3D.jpg "titulo") 
 
 
 
