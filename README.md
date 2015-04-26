@@ -4,9 +4,9 @@ Este es una pagina que eh creado con el propósito de aprender y tener mas conoc
 
 El Futuro Depende Del Esfuerzo Del presente.
 
+![Foto Hacker](http://www.howtake.com/wp-content/uploads/2015/02/hacker.jpg "titulo") 
 
 
-![Foto del Liceo](http://www.desontis.com/wp-content/uploads/2014/02/Fondos-animados-3D.jpg "titulo") 
 
 
 
